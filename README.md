@@ -30,5 +30,5 @@ Please create issues and pull requests to improve the guide. If you have somethi
 
 ## License
 Licensed under the incredibly [permissive](http://en.wikipedia.org/wiki/Permissive_free_software_licence) [Creative Commons Attribution License](http://creativecommons.org/licenses/by/3.0/)
-<br/>Copyright &copy; 2013+ [Benjamin Lupton](http://balupton.com) <b@lupton.cc>
+<br/>Copyright &copy; 2021+ [Benjamin Lupton](http://balupton.com) <b@lupton.cc>
 
