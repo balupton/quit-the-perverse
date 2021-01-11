@@ -1,6 +1,6 @@
 # Quit the Perverse
 
-Your guide to quitting perverse incentives in your life.
+Your guide to quitting [perverse incentives](https://en.wikipedia.org/wiki/Perverse_incentive) in your life.
 
 ## Goal
 
