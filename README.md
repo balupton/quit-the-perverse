@@ -4,7 +4,7 @@ Your guide to quitting perverse incentives in your life.
 
 ## Goal
 
-As technology makes us more powerful, it also makes that power available for perversion. We must cultivate our characters and our discipline to avoid such perversions. Delegating power to another to save us, is in of itself a peversion.
+As technology makes us more powerful, it also makes that power available for perversion. We must cultivate our characters and our discipline to avoid such perversions. Delegating power to another to save us, is in of itself a perversion.
 
 None of us should be surprised when we give our attention to attention hoarding individuals, and power to power hoarding individuals, and money to money hoarding individuals, then we find ourselves disempowered with only the scraps for us from our week's decisions of how we spent our attention, money, and power.
 
