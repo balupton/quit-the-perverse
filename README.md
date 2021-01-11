@@ -68,13 +68,11 @@ Instead of posting photos on parasocial media to be exploited by faux-connection
 
 Instead of posting the fluctuations of your thoughts immediately onto the internet, instead note those fluctuations in a private journal, and think of friends who you could discuss it with, and what needs to happen for these notes to grow enough to be worthwhile of consuming that friend's dedicated and focused time with you to discuss them. They are your friend after all, and friends respect friends time, they don't waste it with nonsense, they grow each other, they cultivate each other, they improve each other.
 
-### Attention resources
-
-- Click farms are only incentivised under perverse markets, markets which benefit from monopolised control, attention hoarding, and data mining; we must remove ourselves from these markets
-  - [Inside ‘Click Farms’ And Their Social Media Impact | TODAY](https://www.youtube.com/watch?v=YZhlU2_YsPE)
-  - [Fake accounts](https://www.youtube.com/watch?v=jfbUl9OuEQw)
-
-- What can you use instead?
+- External resources about the vital importance of reclaiming your attention
+  - Click farms are only incentivised under perverse markets, markets which benefit from monopolised control, attention hoarding, and data mining; we must remove ourselves from these markets
+    - [Inside ‘Click Farms’ And Their Social Media Impact | TODAY](https://www.youtube.com/watch?v=YZhlU2_YsPE)
+    - [Fake accounts](https://www.youtube.com/watch?v=jfbUl9OuEQw)
+- There is world beyond what has been bought and paid for, waiting for you to put your attention into it
   - [My life without a smartphone](https://www.latimes.com/opinion/op-ed/la-oe-germano-life-without-smartphone-20171119-story.html)
   - [Alternative Internet](https://github.com/redecentralize/alternative-internet)
 
