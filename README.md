@@ -15,6 +15,8 @@ We most foster (fund through our wallets, our votes, and our attention) what we 
 
 Please create issues and pull requests to improve the guide. If you have something negative to say, try and think of an educational way of putting it, rather than an ego stroking "I'm right, you're wrong way" that just causes unnecessary defenses. Thanks!
 
+Feel free to also [grab a time on my calendar](https://balupton.com/meet) and we can work on intergrating your feedback into the document, as by all means, it could do with revision.
+
 
 ## Guide
 
