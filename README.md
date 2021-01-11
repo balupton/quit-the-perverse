@@ -68,6 +68,16 @@ Instead of posting photos on parasocial media to be exploited by faux-connection
 
 Instead of posting the fluctuations of your thoughts immediately onto the internet, instead note those fluctuations in a private journal, and think of friends who you could discuss it with, and what needs to happen for these notes to grow enough to be worthwhile of consuming that friend's dedicated and focused time with you to discuss them. They are your friend after all, and friends respect friends time, they don't waste it with nonsense, they grow each other, they cultivate each other, they improve each other.
 
+### Attention resources
+
+- Click farms are only incentivised under perverse markets, markets which benefit from monopolised control, attention hoarding, and data mining; we must remove ourselves from these markets
+  - [Inside ‘Click Farms’ And Their Social Media Impact | TODAY](https://www.youtube.com/watch?v=YZhlU2_YsPE)
+  - [Fake accounts](https://www.youtube.com/watch?v=jfbUl9OuEQw)
+
+- What can you use instead?
+  - [My life without a smartphone](https://www.latimes.com/opinion/op-ed/la-oe-germano-life-without-smartphone-20171119-story.html)
+  - [Alternative Internet](https://github.com/redecentralize/alternative-internet)
+
 
 ## Money
 
@@ -84,6 +94,7 @@ There are many funds, many companies, and many currencies, that are better than 
 - Learn the life saving importance of where your funds go
   - [#76 Dangers of Investing in China | Perth Tolle](https://www.youtube.com/watch?v=RmzkgMrAK90)
   - [Bitcoin: How Does it Work? | Roger Ver | TECH | Rubin Report](https://www.youtube.com/watch?v=N6NscwzbMv)
+  - [China is Stealing Your Christmas via Amazon - Episode #40](https://www.youtube.com/watch?v=QI2_Qz_kdRY)
 - Acces non-inflationary currencies
   - [Coinbase for minimal transaction fees and largest international support](https://balupton.com/coinbase)
   - [Dharma for a decentralised wallet, but still with medium fees](https://www.dharma.io/)
@@ -96,14 +107,6 @@ There are many funds, many companies, and many currencies, that are better than 
 
 
 ## Power
-
-
-## Resources
-
-- [My life without a smartphone](https://www.latimes.com/opinion/op-ed/la-oe-germano-life-without-smartphone-20171119-story.html)
-- [Alternative Internet](https://github.com/redecentralize/alternative-internet)
-
-
 
 ## License
 Licensed under the incredibly [permissive](http://en.wikipedia.org/wiki/Permissive_free_software_licence) [Creative Commons Attribution License](http://creativecommons.org/licenses/by/3.0/)
