@@ -62,11 +62,29 @@ Porn exploits what our gonads seeks in reproduction, but without the fitness ben
 
 Parasocial relationships expoits what our soul seeks in relationships, but without the fitness benefit of a mutual shared connection.
 
+### Porn
+
+Reach out to the person in the video, the image, the stream. Can you touch and feel them?
+
+Move the monitor to different angles, do they still look at you?
+
+Notice where your hand is, is it on the person and gender you are attracted to?
+
+Who and what are you neglecting with this distraction?
+
+Whose life benefits from your addiction? Is it the lives of those you care you about?
+
+You need support to sustain and grow real intimate relationships, you need friends, and you need honesty and integrity.
+
+Faux-relationships are not real, they do not care for you, they are fleecing you of the time and money of this one mortal life that you have. You need all the time and money you can get, before they expire, to develop your character into someone worthy of being in a relationship with.
+
 ### What can you do instead?
 
 Instead of posting photos on parasocial media to be exploited by faux-connection and manipulated by attention hoarders, instead call or meet your friends and screenshare or show them the photos get their reactions in shared social situation, instead of compressed into one-way platitudes and gesticulations. This not only develops your friendships with real interactions, it limits the exploitation of your digital data and personal life, by companies and strangers who don't actually care for you as much as you'd hope.
 
 Instead of posting the fluctuations of your thoughts immediately onto the internet, instead note those fluctuations in a private journal, and think of friends who you could discuss it with, and what needs to happen for these notes to grow enough to be worthwhile of consuming that friend's dedicated and focused time with you to discuss them. They are your friend after all, and friends respect friends time, they don't waste it with nonsense, they grow each other, they cultivate each other, they improve each other.
+
+When you feel a desire for intimacy, realise this is not an impulse to be satiated immediately, but a desire for something that should increase your evolutionary fitness. Become someone of high character so you attract someone worth increasing your fitness with. If you are female, recognise that you have limited time before your eggs deteriorate and the opportunity to find and attract a mate (not just a relationship) will be gone forever if you don't develop your character as soon as possible. If you are male, recognise that you can't pop babies out with whoever you please, that you must act as soon as possible to compound the interest of your time and the fruits of your labour, so that you can compete with other potential mates to get a quality outcome. If you fail to do this, life's limited opportunities in the mating department will pass you by, and that is a bad place to be, as it is filled with faux-entitlement, a guise for the resentment to those who did spend their time wisely. 
 
 - External resources about the vital importance of reclaiming your attention
   - Click farms are only incentivised under perverse markets, markets which benefit from monopolised control, attention hoarding, and data mining; we must remove ourselves from these markets
@@ -75,7 +93,11 @@ Instead of posting the fluctuations of your thoughts immediately onto the intern
 - There is world outside attention that has been bought and paid for, it's just waiting for you to put your attention into it
   - [My life without a smartphone](https://www.latimes.com/opinion/op-ed/la-oe-germano-life-without-smartphone-20171119-story.html)
   - [Alternative Internet](https://github.com/redecentralize/alternative-internet)
-
+- Get support for sutaining an growing real intimate relationships, and not escaping into the fantasy of faux-ones
+  - [NoFap](https://nofap.com/)
+  - [Your Brain on Porn: Website Research](https://www.yourbrainonporn.com/relevant-research-and-articles-about-the-studies/)
+  - [Your Brain On Porn: Internet Pornography and the Emerging Science of Addiction](https://amazon.bevry.workers.dev/dp/B00N2AH8NW/)
+  - [Man Disconnected: How technology has sabotaged what it means to be male](https://amazon.bevry.workers.dev/gp/product/B00RWKNB5W/)
 
 ## Money
 
@@ -105,6 +127,7 @@ There are many funds, many companies, and many currencies, that are better than 
 
 
 ## Power
+
 
 ## License
 Licensed under the incredibly [permissive](http://en.wikipedia.org/wiki/Permissive_free_software_licence) [Creative Commons Attribution License](http://creativecommons.org/licenses/by/3.0/)
