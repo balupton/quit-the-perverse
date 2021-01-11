@@ -66,13 +66,13 @@ Parasocial relationships expoits what our soul seeks in relationships, but witho
 
 Instead of posting photos on parasocial media to be exploited by faux-connection and manipulated by attention hoarders, instead call or meet your friends and screenshare or show them the photos get their reactions in shared social situation, instead of compressed into one-way platitudes and gesticulations. This not only develops your friendships with real interactions, it limits the exploitation of your digital data and personal life, by companies and strangers who don't actually care for you as much as you'd hope.
 
+Instead of posting the fluctuations of your thoughts immediately onto the internet, instead note those fluctuations in a private journal, and think of friends who you could discuss it with, and what needs to happen for these notes to grow enough to be worthwhile of consuming that friend's dedicated and focused time with you to discuss them. They are your friend after all, and friends respect friends time, they don't waste it with nonsense, they grow each other, they cultivate each other, they improve each other.
+
 
 ### Resources
 
 - [My life without a smartphone](https://www.latimes.com/opinion/op-ed/la-oe-germano-life-without-smartphone-20171119-story.html)
-
-
-
+- [Alternative Internet](https://github.com/redecentralize/alternative-internet)
 
 
 ## Money
