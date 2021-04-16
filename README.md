@@ -8,7 +8,7 @@ As technology makes us more powerful, it also makes that power available for per
 
 None of us should be surprised when we give our attention to attention hoarding individuals, and power to power hoarding individuals, and money to money hoarding individuals, then we find ourselves disempowered with only the scraps for us from our week's decisions of how we spent our attention, money, and power.
 
-We most foster (fund through our wallets, our votes, and our attention) what we want, and stop giving it to those who fleece us.
+We must foster (fund through our wallets, our votes, and our attention) what we want, and stop giving it to those who fleece us.
 
 
 ## Feedback
@@ -33,7 +33,7 @@ You don't need a subscription.
 You don't need an app.
 You don't need a service.
 You don't need an upgrade.
-You don't meed a smartphone.
+You don't need a smartphone.
 
 What all these faux-needs have is they relinquish your agency into something external, rather than in yourself. They put your ability on pause, while you wait.
 
@@ -54,11 +54,11 @@ Entertainment is faux-learning.
 Porn is faux-reproduction.
 Parasocial is faux-friendships.
 
-Things in life feel good when they increase our evoutionary fitness (surival and reproduction). However, this positive reinforcement towards increased fitness can be exploited by immitations.
+Things in life feel good when they increase our evoutionary fitness (survival and reproduction). However, this positive reinforcement towards increased fitness can be exploited by immitations.
 
 Junk food exploits what our body seeks in sustenance, but without the fitness benefits of nutrition. 
 
-Entertainement exploits what our mind seeks in situational learning, but without the fitness benfits of embodiment.
+Entertainment exploits what our mind seeks in situational learning, but without the fitness benfits of embodiment.
 
 Porn exploits what our gonads seeks in reproduction, but without the fitness benefit of a nurturing relationship and genetic children.
 
@@ -74,19 +74,19 @@ Notice where your hand is, is it on the person and gender you are attracted to?
 
 Who and what are you neglecting with this distraction?
 
-Whose life benefits from your addiction? Is it the lives of those you care you about?
+Whose life benefits from your addiction? Is it the lives of those you care about or will care about?
 
 You need support to sustain and grow real intimate relationships, you need friends, and you need honesty and integrity.
 
-Faux-relationships are not real, they do not care for you, they are fleecing you of the time and money of this one mortal life that you have. You need all the time and money you can get, before they expire, to develop your character into someone worthy of being in a relationship with.
+Faux-relationships are not real, they do not care for you, they are fleecing you of the time and money of this one mortal life that you have. You need all the time and money you can get, before they expire, to develop your character into someone worthy of being in a relationship and sustaining a family with.
 
 ### What can you do instead?
 
 Instead of posting photos on parasocial media to be exploited by faux-connection and manipulated by attention hoarders, instead call or meet your friends and screenshare or show them the photos get their reactions in shared social situation, instead of compressed into one-way platitudes and gesticulations. This not only develops your friendships with real interactions, it limits the exploitation of your digital data and personal life, by companies and strangers who don't actually care for you as much as you'd hope.
 
-Instead of posting the fluctuations of your thoughts immediately onto the internet, instead note those fluctuations in a private journal, and think of friends who you could discuss it with, and what needs to happen for these notes to grow enough to be worthwhile of consuming that friend's dedicated and focused time with you to discuss them. They are your friend after all, and friends respect friends time, they don't waste it with nonsense, they grow each other, they cultivate each other, they improve each other.
+Instead of posting the fluctuations of your thoughts immediately onto the internet or in an instant message, instead note those fluctuations in a private journal, and think of friends who you could discuss it with over a real conversation, developing what needs to happen for these inklings of notes to grow enough to be worthwhile of consuming that friend's dedicated and focused time with you to discuss them. They are your friend after all, and friends respect friends time, they don't waste it with nonsense, they grow each other, they cultivate each other, they improve each other.
 
-When you feel a desire for intimacy, realise this is not an impulse to be satiated immediately, but a desire for something that should increase your evolutionary fitness. Become someone of high character so you attract someone worth increasing your fitness with. If you are female, recognise that you have limited time before your eggs deteriorate and the opportunity to find and attract a mate (not just a relationship) will be gone forever if you don't develop your character as soon as possible. If you are male, recognise that you can't pop babies out with whoever you please, that you must act as soon as possible to compound the interest of your time and the fruits of your labour, so that you can compete with other potential mates to get a quality outcome. If you fail to do this, life's limited opportunities in the mating department will pass you by, and that is a bad place to be, as it is filled with faux-entitlement, a guise for the resentment to those who did spend their time wisely. If you are an undesirable woman, you will be surrounded by hoards of undesirable men, with no protector. One must also realise sexual access is not mateship access, and that sleeping with someone is not a exclusive access to them; fidelity is more than access, it is a conviction of character. If you wish for a happy family, one without jealously, infidility, and divorce, then as a man you must avoid whores as they will fleece you as a honeytrap for their own gain, and as a woman, each new sexual encounter reduces your mateship pontential as it ruins your trust in guaranteeing that any father of your child is who you say he is. Also, STDs are a thing, you can be asymptomatic and pass it on, some can make women infertile. So avoid dating apps that optimise for fleecing each other, and focus on developing real friendships, which when the right person comes, your friends can vouch and support you through your courting and family, and protect you and them if anyone's motivations are insincere.
+When you feel a desire for intimacy, realise this is not an impulse to be satiated immediately, but a desire for something that should increase your evolutionary fitness. Become someone of high character so you attract someone worth increasing your fitness with. If you are female, recognise that you have limited time before your eggs deteriorate and the opportunity to find and attract a mate (not just a relationship) will be gone forever if you don't develop your character as soon as possible. If you are male, recognise that you can't pop babies out with whoever you please, that you must act as soon as possible to compound the interest of your time and the fruits of your labour, so that you can compete with other potential mates to get a quality outcome. If you fail to do this, life's limited opportunities in the mating department will pass you by, and that is a bad place to be, as it is filled with faux-entitlement, a guise for the resentment to those who did spend their time wisely. If you are an undesirable woman, you will be surrounded by hoards of undesirable men, with no protector. One must also realise sexual access is not mateship access, and that sleeping with someone is not an exclusive access to them; fidelity is more than access, it is a conviction of character. If you wish for a happy family, one without jealously, infidility, and divorce, then as a man you must avoid whores as they will fleece you as a honeytrap for their own gain, and as a woman, each new sexual encounter reduces your mateship pontential as it ruins your trust in guaranteeing that any father of your child is who you say he is. Also, STDs are a thing, you can be asymptomatic and pass it on, some can make women infertile. So avoid dating apps that optimise for fleecing each other, and focus on developing real friendships, which when the right person comes, your friends can vouch and support you through your courting and family, and protect you and them if anyone's motivations are insincere.
 
 - External resources about the vital importance of reclaiming your attention
   - Click farms are only incentivised under perverse markets, markets which benefit from monopolised control, attention hoarding, and data mining; we must remove ourselves from these markets
